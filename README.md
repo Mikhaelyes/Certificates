@@ -1,1 +1,1 @@
-Please focus of Books and projects link :)
+Please focus on Books and projects link :)
